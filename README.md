@@ -1,4 +1,4 @@
-# 👨‍💻 KSingh0405
+# 👨‍💻 KHEMENDRA SINGH KHANGAROT
 
 [![GitHub followers](https://img.shields.io/github/followers/C0dEbReAkEr-glitch?style=social)](https://github.com/C0dEbReAkEr-glitch)
 [![Twitter Follow](https://img.shields.io/twitter/follow/3FOXshield1?style=social)](https://x.com/3FOXshield1)
